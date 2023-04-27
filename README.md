@@ -1,3 +1,3 @@
 # just-for-fun
 
-Here you can fix the tipo
+Here you can fix the typo
